@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Borgorboss
+- 👀 I’m interested in nothnig
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me no
+- 😄 Pronouns: AH-64D Apache Longbow Attack Helicopter
+- ⚡ Fun fact: yes
